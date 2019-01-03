@@ -1,4 +1,2 @@
 kambing gurun ensem
-
-
-aper laaaa
+lk;lks;els
